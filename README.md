@@ -9,7 +9,7 @@ Here are some ideas to get you started:
 - 🌱 Always learning new things
 - 👯 I’m looking to collaborate on BIG PROJECTS
 - 💬 Ask me about Logics
-- 📫 How to reach me: Discord Codonist#7832
+- 📫 How to reach me: Whatsapp +92 343 3443837
 - 🛠 DIY Enthusiast 
 - 🦁 Animal Lover
 - 🌲 Nature Addicted
